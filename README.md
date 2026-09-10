@@ -1,3 +1,0 @@
-# manhwahub
-
-Exported from DesignArena
